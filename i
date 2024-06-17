@@ -1,1 +1,0 @@
-ntha vechikoj
